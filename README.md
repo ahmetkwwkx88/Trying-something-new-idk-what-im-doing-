@@ -14,3 +14,4 @@ and that moment when I looked at the remaining 11 bottles in the fridge, I felt 
 right there, and then I saw the bottles as a family 
 and I saw myself as the tyrant who was taking away a family member 
 I stare at the fridge and the bottles and the other barrel in my hand 
+four minutes I stared at them and I said what the fuck am I doing? 
