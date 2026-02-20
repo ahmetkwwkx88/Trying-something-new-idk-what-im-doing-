@@ -17,3 +17,4 @@ I stare at the fridge and the bottles and the other barrel in my hand
 four minutes I stared at them and I said what the fuck am I doing? 
 am I really having feelings over a water bottle having a family? 
 do I really think I'm a tyrant because of removing a bottle from the fridge? 
+These thoughts are my daily life 
