@@ -6,3 +6,4 @@ i saw ant in my room
 he was not alone 
 i took a look at them and felt something 
 ive always had these feelings when i see something i always think is has a soul
+like the other day where i wanted to pick up water from the fridge 
