@@ -59,3 +59,4 @@ hango: yyy... yes your majesty it was me who sounded the alarm (with a crickling
 and what may be the matter of you something the alarm? 
 your majesty, I was only trying to warn our tribe 
 warn ? wran of what 
+turiba was takin from us today by the xiomax tribe
