@@ -21,3 +21,4 @@ These thoughts are my daily life
 Every action I take, I have these feelings I have these thoughts of that they're alive. Everything is alive. 
 I don't know when started it. I don't remember a time where I didn't have these thoughts. 
 and another thing I do in my every action is everything has to be even 
+I can't stand to the odd numbers. Everything has to be even. 
