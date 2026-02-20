@@ -61,3 +61,4 @@ your majesty, I was only trying to warn our tribe
 warn ? wran of what 
 turiba was takin from us today by the xiomax tribe
 XİOMAX ?????????? 
+yes, your majesty we were on a supply run today 
