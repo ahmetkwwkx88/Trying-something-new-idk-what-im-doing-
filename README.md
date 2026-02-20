@@ -29,3 +29,4 @@ if I eat one olive or three olives, I feel like that they are orphans and they n
 sometimes it's much harder to do because if I wanna eat a burrito, I feel like I need to eat two or I ask the waiter to serve it in two pieces 
 you may ask, what does all these have to do with the ant story 
 and my answer is, I don't know. I just wanted to talk about how I feel. How I see the world. 
+so what about the ant story? 
