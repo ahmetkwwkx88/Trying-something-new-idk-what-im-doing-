@@ -49,3 +49,4 @@ all hail her majesty the queen
 ant number theree: you're finished now hango the queen is gonna have your head 
 hango: bb… bbu… but I didn't do anything 
 ant number one: so it wasn't you who crossed the xiomax tribes territory with turiba today
+SILENCE THE QUEEN IS TALKING 
