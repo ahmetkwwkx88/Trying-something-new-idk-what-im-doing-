@@ -5,3 +5,4 @@ this story is about an ant
 i saw ant in my room
 he was not alone 
 i took a look at them and felt something 
+ive always had these feelings when i see something i always think is has a soul
