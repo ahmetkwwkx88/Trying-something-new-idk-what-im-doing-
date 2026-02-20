@@ -58,3 +58,4 @@ so are you the one who sounded the alarm? Queen says.
 hango: yyy... yes your majesty it was me who sounded the alarm (with a crickling voice)
 and what may be the matter of you something the alarm? 
 your majesty, I was only trying to warn our tribe 
+warn ? wran of what 
