@@ -37,3 +37,4 @@ and then I hear them whisper talking about some tribe and the opposite side of t
 ant number one: I told you we shouldn't have been near there nest why didn't you listen to me? 
 ant number two: I don't know man I don't know. We just saw the crumbs and didn't think of anything. 
 ant mumber three: yeah I don't think thinking is your best suit you dumbass because of you we lost huriba
+they talk they talk and they go they go inside the crack. I can see through their eyes. 
