@@ -31,3 +31,4 @@ you may ask, what does all these have to do with the ant story
 and my answer is, I don't know. I just wanted to talk about how I feel. How I see the world. 
 so what about the ant story? 
 there is a crack between the wall and the flooring of the house 
+I see three ants carrying what seems to look alike breadcrumbs to the crack 
