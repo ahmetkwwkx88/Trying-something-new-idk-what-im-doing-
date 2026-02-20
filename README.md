@@ -25,3 +25,4 @@ I can't stand to the odd numbers. Everything has to be even.
 I I love numbers two and four, specially I don't know what about them that I like 
 but I tried to do whatever I'm doing in those numbers like if I'm eating an olive
 I have to eat either two four or six olives 
+if I eat one olive or three olives, I feel like that they are orphans and they need to be either two olives or four olives 
