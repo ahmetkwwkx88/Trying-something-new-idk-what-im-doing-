@@ -12,3 +12,4 @@ I reached out for one and as I was closing the fridge door, I hesitated
 I know I'm moving away from the ant story but bear with me 
 and that moment when I looked at the remaining 11 bottles in the fridge, I felt something 
 right there, and then I saw the bottles as a family 
+and I saw myself as the tyrant who was taking away a family member 
