@@ -52,3 +52,4 @@ ant number one: so it wasn't you who crossed the xiomax tribes territory with tu
 SILENCE THE QUEEN IS TALKING 
 Who has the audacity to summon me at this hour? 
 however, send the alarm COME FORWARD 
+I see ants pushing hango forward 
