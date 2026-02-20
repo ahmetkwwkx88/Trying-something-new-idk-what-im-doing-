@@ -7,3 +7,4 @@ he was not alone
 i took a look at them and felt something 
 ive always had these feelings when i see something i always think is has a soul
 like the other day where i wanted to pick up water from the fridge 
+I opened the fridge door and I saw 12 bottles of water side-by-side 
