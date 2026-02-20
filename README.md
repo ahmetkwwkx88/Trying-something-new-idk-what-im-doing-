@@ -51,3 +51,4 @@ hango: bb… bbu… but I didn't do anything
 ant number one: so it wasn't you who crossed the xiomax tribes territory with turiba today
 SILENCE THE QUEEN IS TALKING 
 Who has the audacity to summon me at this hour? 
+however, send the alarm COME FORWARD 
