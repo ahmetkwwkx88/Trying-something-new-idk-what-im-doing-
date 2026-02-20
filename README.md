@@ -34,4 +34,5 @@ there is a crack between the wall and the flooring of the house
 I see three ants carrying what seems to look alike breadcrumbs to the crack 
 but why three ? I swear there were four of them this morning what happened to the other one? 
 and then I hear them whisper talking about some tribe and the opposite side of the house 
-anr number one: I told you we shouldn't have been near there nest why didn't you listen to me? 
+ant number one: I told you we shouldn't have been near there nest why didn't you listen to me? 
+ant number two: I don't know man I don't know. We just saw the crumbs and didn't think of anything. 
