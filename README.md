@@ -39,3 +39,4 @@ ant number two: I don't know man I don't know. We just saw the crumbs and didn't
 ant mumber three: yeah I don't think thinking is your best suit you dumbass because of you we lost huriba
 they talk they talk and they go they go inside the crack. I can see through their eyes. 
 inside is like a maze a city, but how could it be? It's just a crack in the wall thoughts running through my mind 
+I see one of the ants sound the alarm and I see thousands of ants running around 
