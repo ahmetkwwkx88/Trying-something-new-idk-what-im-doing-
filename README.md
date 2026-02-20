@@ -64,3 +64,4 @@ XİOMAX ??????????
 yes, your majesty we were on a supply run today 
 me, huriga, kiloma and fulki 
 we were trying to get the breadcrumbs under the big square 
+from nowhere we saw I'm coming towards us 
