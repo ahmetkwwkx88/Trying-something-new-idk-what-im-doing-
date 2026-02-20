@@ -23,3 +23,4 @@ I don't know when started it. I don't remember a time where I didn't have these 
 and another thing I do in my every action is everything has to be even 
 I can't stand to the odd numbers. Everything has to be even. 
 I I love numbers two and four, specially I don't know what about them that I like 
+but I tried to do whatever I'm doing in those numbers like if I'm eating an olive
