@@ -42,3 +42,4 @@ inside is like a maze a city, but how could it be? It's just a crack in the wall
 I see one of the ants sound the alarm and I see thousands of ants running around 
 and then silence…
 every ant has about his head down in front of big stadium or a big throne 
+and then I hear the trombones then I see ants with guns 
