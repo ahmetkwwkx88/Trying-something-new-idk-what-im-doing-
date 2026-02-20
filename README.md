@@ -9,3 +9,4 @@ ive always had these feelings when i see something i always think is has a soul
 like the other day where i wanted to pick up water from the fridge 
 I opened the fridge door and I saw 12 bottles of water side-by-side 
 I reached out for one and as I was closing the fridge door, I hesitated 
+I know I'm moving away from the ant story but bear with me 
