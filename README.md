@@ -18,3 +18,4 @@ four minutes I stared at them and I said what the fuck am I doing?
 am I really having feelings over a water bottle having a family? 
 do I really think I'm a tyrant because of removing a bottle from the fridge? 
 These thoughts are my daily life 
+Every action I take, I have these feelings I have these thoughts of that they're alive. Everything is alive. 
