@@ -19,3 +19,4 @@ am I really having feelings over a water bottle having a family?
 do I really think I'm a tyrant because of removing a bottle from the fridge? 
 These thoughts are my daily life 
 Every action I take, I have these feelings I have these thoughts of that they're alive. Everything is alive. 
+I don't know when started it. I don't remember a time where I didn't have these thoughts. 
