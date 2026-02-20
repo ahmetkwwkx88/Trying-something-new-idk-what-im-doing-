@@ -27,3 +27,4 @@ but I tried to do whatever I'm doing in those numbers like if I'm eating an oliv
 I have to eat either two four or six olives 
 if I eat one olive or three olives, I feel like that they are orphans and they need to be either two olives or four olives
 sometimes it's much harder to do because if I wanna eat a burrito, I feel like I need to eat two or I ask the waiter to serve it in two pieces 
+you may ask, what does all these have to do with the ant story 
