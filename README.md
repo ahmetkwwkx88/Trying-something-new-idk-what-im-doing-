@@ -32,3 +32,4 @@ and my answer is, I don't know. I just wanted to talk about how I feel. How I se
 so what about the ant story? 
 there is a crack between the wall and the flooring of the house 
 I see three ants carrying what seems to look alike breadcrumbs to the crack 
+but why three ? I swear there were four of them this morning what happened to the other one? 
