@@ -63,3 +63,4 @@ turiba was takin from us today by the xiomax tribe
 XİOMAX ?????????? 
 yes, your majesty we were on a supply run today 
 me, huriga, kiloma and fulki 
+we were trying to get the breadcrumbs under the big square 
