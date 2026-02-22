@@ -76,3 +76,4 @@ we are going to a WAR
 -- btw i like terminator 2 great movie
 mabey its from my movie love that im writing stories
 i checked it the other day 
+ive watched 3000 movies to this day 
