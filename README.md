@@ -73,3 +73,4 @@ That bastard he thinks he can have me
 he thinks he can have me by taking my people prisonsers 
 COMANDER ready all military personal 
 we are going to a WAR
+-- btw i like terminator 2 great movie
