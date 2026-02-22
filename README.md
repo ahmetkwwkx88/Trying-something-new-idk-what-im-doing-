@@ -70,3 +70,4 @@ they caught him and they said they were going to torture him if you don't do as 
 they demand that your highness Mary's the king the king of xiomax 
 Their great king Pukjnak
 That bastard he thinks he can have me 
+he thinks he can have me by taking my people prisonsers
