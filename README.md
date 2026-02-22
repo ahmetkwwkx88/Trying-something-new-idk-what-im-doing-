@@ -80,3 +80,4 @@ ive watched 3000 movies to this day
 and hundreds of seasons of shows 
 it's becoming hard to find the movie or a show to invest in it to watch it four seasons and years 
 i like zombie shows and movies even the bad ones
+ive watched everything about the walking dead 
