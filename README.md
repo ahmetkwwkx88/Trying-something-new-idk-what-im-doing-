@@ -84,3 +84,4 @@ ive watched everything about the walking dead
 main seris, the spinoffs, web series, video games 
 I'm very confused.
 İ see them gathering their troops 
+getting ready for a war 
