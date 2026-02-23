@@ -89,3 +89,4 @@ they dont know it yet but this war is everything
 this war is gona change the course ant colonies 
 war to end the all wars 
 i like oppenhimer 
+Stanley Kubricks first movie is a bit overrated 
