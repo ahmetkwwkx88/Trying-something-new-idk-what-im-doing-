@@ -90,3 +90,4 @@ this war is gona change the course ant colonies
 war to end the all wars 
 i like oppenhimer 
 Stanley Kubricks first movie is a bit overrated 
+it's still good, but I don't think it deserves this much hype
