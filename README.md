@@ -96,3 +96,4 @@ i need a good idea but bad execution movie
 im worried about my future
 im sick and life is getting harder everyday
 how long will i stay with this sickness
+my medicines are expensive 
