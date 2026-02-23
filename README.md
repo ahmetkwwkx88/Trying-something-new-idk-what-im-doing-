@@ -95,3 +95,4 @@ im watching 5/10 movie idk why
 i need a good idea but bad execution movie 
 im worried about my future
 im sick and life is getting harder everyday
+how long will i stay with this sickness
