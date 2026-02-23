@@ -85,3 +85,4 @@ main seris, the spinoffs, web series, video games
 I'm very confused.
 İ see them gathering their troops 
 getting ready for a war 
+they dont know it yet but this war is everything
