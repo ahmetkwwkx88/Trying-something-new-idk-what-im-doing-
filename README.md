@@ -101,3 +101,4 @@ idk what im writing
 i was supposed to write a story 
 idk what im doing  
 i feel im in a limbo state 
+having fun feels so hard
