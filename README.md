@@ -94,3 +94,4 @@ it's still good, but I don't think it deserves this much hype
 im watching 5/10 movie idk why 
 i need a good idea but bad execution movie 
 im worried about my future
+im sick and life is getting harder everyday
