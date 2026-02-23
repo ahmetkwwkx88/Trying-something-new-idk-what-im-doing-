@@ -103,3 +103,4 @@ idk what im doing
 i feel im in a limbo state 
 having fun feels so hard
 my fun is been taken away from me and needs too much to come back 
+…...........….............……...........….........
