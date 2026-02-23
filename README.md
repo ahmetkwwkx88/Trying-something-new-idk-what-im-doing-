@@ -91,3 +91,4 @@ war to end the all wars
 i like oppenhimer 
 Stanley Kubricks first movie is a bit overrated 
 it's still good, but I don't think it deserves this much hype
+im watching 5/10 movie idk why 
