@@ -98,3 +98,4 @@ im sick and life is getting harder everyday
 how long will i stay with this sickness
 my medicines are expensive 
 idk what im writing 
+i was supposed to write a story 
