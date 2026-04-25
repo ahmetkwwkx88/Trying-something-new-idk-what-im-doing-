@@ -104,4 +104,4 @@ i feel im in a limbo state
 having fun feels so hard
 my fun is been taken away from me and needs too much to come back 
 …...........….............……...........….........
-Fuck the war
+Fuck the war 21000
